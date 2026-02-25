@@ -10,5 +10,8 @@
 
 # 
 
+$\color{#0a3b67}{Heavenly}$ㅤ   ㅤ  ㅤ  $\color{#f7d261}{or}$ㅤ   ㅤ  ㅤ  $\color{#ec9949}{Kuru}$
+
+$\color{#0a3b67}{He}$ㅤ   ㅤ/  ㅤ  $\color{#f7d261}{any}$
 
 ![2_--](https://github.com/user-attachments/assets/c6e2aeef-e420-4193-91e8-6a8e9d95c06c)
