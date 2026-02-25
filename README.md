@@ -14,4 +14,9 @@ $\color{#0a3b67}{Heavenly}$ㅤ   ㅤ  ㅤ  $\color{#f7d261}{or}$ㅤ   ㅤ  ㅤ  
 
 $\color{#0a3b67}{He}$ㅤ   ㅤ/  ㅤ  $\color{#f7d261}{any}$
 
+$\color{#f7d261}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heavenlydeathh)
+
+![142_sin_titulo_20260225114708](https://github.com/user-attachments/assets/905ba1f7-d97a-43c0-93bd-abc95e59f4c9)
+
+
 ![2_--](https://github.com/user-attachments/assets/c6e2aeef-e420-4193-91e8-6a8e9d95c06c)
