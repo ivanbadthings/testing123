@@ -10,11 +10,11 @@
 
 # 
 
-$\color{#0a3b67}{Heavenly}$ㅤ   ㅤ  ㅤ  $\color{#f7d261}{or}$ㅤ   ㅤ  ㅤ  $\color{#ec9949}{Kuru}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#0a3b67}{Heavenly}$ㅤ   ㅤ  ㅤ  $\color{#f7d261}{or}$ㅤ   ㅤ  ㅤ  $\color{#ec9949}{Kuru}$
 
-$\color{#0a3b67}{He}$ㅤ   ㅤ/  ㅤ  $\color{#f7d261}{any}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#0a3b67}{He}$ㅤ   ㅤ/  ㅤ  $\color{#f7d261}{any}$
 
-$\color{#f7d261}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heavenlydeathh)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#f7d261}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heavenlydeathh)
 
 #
-test 123 hi
+
