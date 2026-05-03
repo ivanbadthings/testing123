@@ -14,3 +14,20 @@ $\color{#949494}{꒷꒦⊹ He}$ㅤ   ㅤ/  ㅤ  $\color{#837f7f}{any~” ⊹}$
 $\color{#3850cf}{c+h~freely}$ㅤ   ㅤ  ㅤ  [alt acc](https://github.com/heavenlydeathh)
 
 #
+
+<details>
+<summary>$${\color{#1570ac} 𓈒ֺּׅ♡ \space ab
+t \space me \space ! \space ꒷꒦𓏲}$$</summary>
+  
+![imadog](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
+.ᐟ  ✦ ₊ txt txt
+
+![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
+.ᐟ  ✦ ₊ en la radio hay un pollito
+
+![2vuX1yq](https://github.com/user-attachments/assets/1b5ed85a-7818-4436-9476-2a88736df0bf)
+.ᐟ  ✦ ₊ tres tristes tigres comiendo trigo en un trigal
+
+  
+</details>
+
